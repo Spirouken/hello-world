@@ -1,2 +1,2 @@
 # hello-world
-some kot shit
+some nice shit
